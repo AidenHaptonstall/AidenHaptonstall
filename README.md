@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AidenHaptonstall
+- 👀 I’m interested in developing video games and websites
+- 🌱 I’m currently learning Kitlin
+- 📫 How to reach me: Email; haptonstall.aiden@gmail.com
+- ⚡ Fun fact: I am a major gamer
